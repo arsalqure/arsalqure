@@ -1,4 +1,4 @@
-# arsalaqure.profile
+# arsalaqure
 # 👋 Hi, I'm Arsalan Ahmed Qureshi
 
 🎯 Aspiring Data Analyst | Electronics & Telecommunication Grad  
