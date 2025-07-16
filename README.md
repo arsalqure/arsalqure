@@ -29,7 +29,7 @@
 
 ### 📫 How to reach me:
 - Email: arsalanahmed9144@gmail.com  
-- LinkedIn: [Arsalan Ahmed Qureshi](https://linkedin.com/in/arsalanahmedqureshi)
+- LinkedIn: [Arsalan Ahmed Qureshi](https://linkedin.com/in/arsalanahmedqureshi](https://www.linkedin.com/in/arsalanahmed9144/)
 
 ---
 
